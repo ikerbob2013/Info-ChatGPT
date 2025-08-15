@@ -1,0 +1,12 @@
+Abraham Vera Medero: Hijo de Pilar Medero Silva y Flore Vera Gomez.
+
+Vive en lepe 
+
+Tiene 17 años (En 2025) (Los cumple el 26/4/2008)
+
+su madre anda en un tema de brujería (Tema mas reciente: Amarre a su amiga para forzarla a ser su novia)
+Objetivos: Su hijo Abraham y se amiga Andrea
+
+Abraham tiene Heterochromia en su ojo izquierdo mitad verde mitad marron
+
+(Ultima actualización del documento 15/8/2025 14:49)
